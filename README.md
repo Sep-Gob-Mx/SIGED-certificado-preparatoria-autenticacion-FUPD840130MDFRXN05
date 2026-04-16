@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-FUPD840130MDFRXN05
+FUPD840130MDFRXN05
